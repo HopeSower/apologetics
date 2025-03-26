@@ -1,6 +1,15 @@
----
-title: Welcome to Quartz
----
+# 🏠 Apologetics Vault
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+## 📌 Quick Links:
+
+- [[FAQ & Common Objections/Index]]
+- [[Topics & Arguments/Index]]
+- [[Scripture References/Index]]
+- [[Videos/Index]]
+- [[Resources & Creators/Index]]
+## 🛡️ Important Arguments:
+
+- [[Islamic Dilemma]]
+
+## 🎬 Recently Watched
+- [[]
