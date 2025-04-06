@@ -1,0 +1,10 @@
+The Women (4:89) 
+
+وَدُّوا۟ لَوْ تَكْفُرُونَ كَمَا كَفَرُوا۟ فَتَكُونُونَ سَوَآءًۭ ۖ فَلَا تَتَّخِذُوا۟ مِنْهُمْ أَوْلِيَآءَ حَتَّىٰ يُهَاجِرُوا۟ فِى سَبِيلِ ٱللَّهِ ۚ فَإِن تَوَلَّوْا۟ فَخُذُوهُمْ وَٱقْتُلُوهُمْ حَيْثُ وَجَدتُّمُوهُمْ ۖ وَلَا تَتَّخِذُوا۟ مِنْهُمْ وَلِيًّۭا وَلَا نَصِيرًا ٨٩
+
+They wish you would disbelieve as they have disbelieved, so you may all be alike. So do not take them as allies unless they emigrate in the cause of Allah. But if they turn away, then seize them and kill them wherever you find them, and do not take any of them as allies or helpers,
+— Dr. Mustafa Khattab, The Clear Quran
+
+
+
+https://quran.com/4/89

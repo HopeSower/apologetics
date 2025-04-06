@@ -1,0 +1,6 @@
+أَخْبَرَنَا عَمْرُو بْنُ عَلِيٍّ، قَالَ حَدَّثَنَا يَحْيَى، قَالَ حَدَّثَنَا سُفْيَانُ، قَالَ حَدَّثَنَا أَبُو إِسْحَاقَ، عَنْ عَمْرِو بْنِ غَالِبٍ، قَالَ قَالَتْ عَائِشَةُ أَمَا عَلِمْتَ أَنَّ رَسُولَ اللَّهِ صلى الله عليه وسلم قَالَ ‏ "‏ لاَ يَحِلُّ دَمُ امْرِئٍ مُسْلِمٍ إِلاَّ رَجُلٌ زَنَى بَعْدَ إِحْصَانِهِ أَوْ كَفَرَ بَعْدَ إِسْلاَمِهِ أَوِ النَّفْسُ بِالنَّفْسِ ‏"‏ ‏.‏ وَقَّفَهُ زُهَيْرٌ ‏.‏
+
+It was narrated that 'Amr bin Ghalib said: "Aishah said: 'Do you not know that the Messenger of Allah [SAW] said: It is not permissible to shed the blood of a Muslim, except a man who committed adultery after being married, or one who reverted to Kufr after becoming Muslim, or a life for a life.'"
+
+Sunan an-Nasa'i 4017
+https://sunnah.com/nasai:4017
