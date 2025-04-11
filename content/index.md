@@ -2,6 +2,7 @@
 
 ## 📌 Quick Links:
 
+- [[هنا]]
 - [[FAQ & Common Objections/Index]]
 - [[Topics & Arguments/Index]]
 - [[Scripture References/Index]]
