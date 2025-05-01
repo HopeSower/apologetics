@@ -2,15 +2,10 @@
 
 ## 📌 Quick Links:
 
-- [[هنا]]
-- [[FAQ & Common Objections/Index]]
-- [[Topics & Arguments/Index]]
-- [[Scripture References/Index]]
-- [[Videos/Index]]
-- [[Resources & Creators/Index]]
+
+- [[Topics & Arguments]]
+- [[Scripture References]]
+- - [[هنا]]
 ## 🛡️ Important Arguments:
 
 - [[Islamic Dilemma]]
-
-## 🎬 Recently Watched
-- [[]

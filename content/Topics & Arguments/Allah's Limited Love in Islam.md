@@ -1,0 +1,9 @@
+https://quran.com/2/190
+https://quran.com/2/276
+https://quran.com/3/32
+https://quran.com/3/57
+https://quran.com/4/36
+https://quran.com/7/31
+https://quran.com/8/58
+https://quran.com/28/77
+https://quran.com/57/23
