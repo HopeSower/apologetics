@@ -1,11 +1,11 @@
-# 🏠 Apologetics Vault
+ # 🏠 Apologetics Vault
 
 ## 📌 Quick Links:
 
 
 - [[Topics & Arguments]]
 - [[Scripture References]]
-- - [[هنا]]
+- - [[م.ن.]]
 ## 🛡️ Important Arguments:
 
 - [[Islamic Dilemma]]
