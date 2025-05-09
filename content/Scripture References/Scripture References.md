@@ -1,5 +1,5 @@
 # 📌Scripture References
 
 - [[Bible]]
-- [[Quran]]
+- [[55_Ar-Rahman]]
 - [[Hadiths]]

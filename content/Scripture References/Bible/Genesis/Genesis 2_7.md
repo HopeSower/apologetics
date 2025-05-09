@@ -1,0 +1,3 @@
+Genesis 2:7 KJV  
+  
+And the Lord God formed man of the dust of the ground, and breathed into his nostrils the breath of life; and man became a living soul.
