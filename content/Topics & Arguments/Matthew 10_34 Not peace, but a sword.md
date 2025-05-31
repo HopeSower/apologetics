@@ -42,4 +42,4 @@ True Christians across centuries have **suffered** the sword (martyrdom lists, m
 ---
 
 #### 6 .  Contrast with Islamic Sources  
-For Quranic and hadith passages that explicitly enjoin fighting and killing, see **[[Killing in islam]]**. The gulf between Christ’s call to *bear* the sword of persecution and Islam’s command, in multiple contexts, to *wield* the sword remains unbridged.
+For Quranic and hadith passages that explicitly enjoin fighting and killing, see **[[Killing in Islam]]**. The gulf between Christ’s call to *bear* the sword of persecution and Islam’s command, in multiple contexts, to *wield* the sword remains unbridged.

@@ -1,5 +1,4 @@
 TO BE CONTINUED:
-okay now working on the note related to Embryology Mistakes in the Quran.
 
 The quran talks about embryology in verses [[Quran 23_12]] [[Quran 23_13]] [[Quran 23_14]].
 
